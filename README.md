@@ -1,1 +1,1 @@
-![get krissed]([https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif](https://c.tenor.com/dTMEkXg2C7AAAAAM/krackpink.gif))
+![L](https://c.tenor.com/rTuBXLhaVKsAAAAM/ryuchaers-scyujins.gif)
